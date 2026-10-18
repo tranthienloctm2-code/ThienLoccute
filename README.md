@@ -1,2 +1,2 @@
-on my computer
+on my pc 
 
